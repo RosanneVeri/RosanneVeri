@@ -1,5 +1,5 @@
 # 💫 About Me:
-👩‍🎓 Sou estudante de Análise e Desenvolvimento de Sistemas<br>✅ estou no 4º semestre... à procura de estágio
+👩‍🎓 Sou estudante de Análise e Desenvolvimento de Sistemas<br>✅Estagiária em desenvolvimento de software
 
 
 ## 🌐 Socials:
